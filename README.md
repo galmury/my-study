@@ -4,4 +4,4 @@
 [Stock] 매수 삼성전자 2주 190,200
 [python] 
 [Diet] 걸음 6,455
-[Reading] 
+[Reading] 413~417 칼세이건 코스모스
