@@ -14,3 +14,10 @@
 2026-02-22 일요일
 [Chinese] 논어 : 극기복례, 육언육폐
 [Diet] 걸음 1,332걸음
+
+2026-02-23 월요일
+[Diet] 계단 B1~20 걸음 5,992
+[English] I'm not my brother's keeper  
+
+2026-02-24 화요일
+[English] Churlish 
