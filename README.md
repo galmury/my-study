@@ -18,6 +18,10 @@
 2026-02-23 월요일
 [Diet] 계단 B1~20 걸음 5,992
 [English] I'm not my brother's keeper  
+[Stock] Kodex 3주(86,860)
 
 2026-02-24 화요일
 [English] Churlish 
+[History] 성종 삼봉도 - 조선왕 연대기
+[Stock] 매도 SkHynix 3주 98,000원 // 매수 삼성전자 2주 198,000 Kodex200 7(88,148) 2wn(92,490)금 2주(243,630) 삼아알미늄 1주(32,700) 한전 1주(62,600)
+
