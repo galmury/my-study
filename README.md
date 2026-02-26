@@ -27,3 +27,11 @@
 [realty] 장지동 1131번지
 [Tip] 클립보드 저장법(Edge 패널)과  삼성단축어(설정>일반>삼성키보드설정>단축어) - 주소 사업자번호 
 [Chiness] 일취월장, 파부침주 = Burn th ships
+
+Not 2025-02-25 수요일
+[Diet] 안개공원 걸음 14,953
+
+
+2025-02-26 목요일
+[English] ashes to ashes dust to dust
+
